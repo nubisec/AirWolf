@@ -1,2 +1,2 @@
 # AirWolf
-AirWolf is project Cyber security threat intellegence feeds communities for all everyone to protected  from Black Hacker
+AirWolf is project Cyber Security Minded for all everyone to protected from Black Hacker
